@@ -1,2 +1,2 @@
 # Resume
-Sanjana_tiwari-resume
+Data Analyst_Sanjana Tiwari
